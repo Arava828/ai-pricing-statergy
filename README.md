@@ -157,9 +157,9 @@ ai-based-pricing-strategy/
 
 **Cheruvu Madhu Ganesh**  
 🎓 B.Tech – Computer Science and Business Systems (2025)  
-📧 [angadidivya210@gmail.com](mailto:angadidivya210@gmail.com)  
+📧 [aravaajaykumar95@gmail.com](mailto:aravaajaykumar95@gmail.com)  
 📍 Peravali, Andhra Pradesh, India  
-🔗 [LinkedIn](www.linkedin.com/in/divya-angadi *(update with your profile)*
+🔗 [LinkedIn](www.linkedin.com/*(update with your profile)*
 
 ---
 
