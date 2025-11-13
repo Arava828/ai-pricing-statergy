@@ -159,7 +159,7 @@ ai-based-pricing-strategy/
 🎓 B.Tech – Computer Science and Business Systems (2025)  
 📧 [aravaajaykumar95@gmail.com](mailto:aravaajaykumar95@gmail.com)  
 📍  Kurnool, Andhra Pradesh, India  
-🔗 [LinkedIn](www.linkedin.com/*(update with your profile)*
+🔗 [LinkedIn http://linkedin.com/in/ajay-kumar-arava-918854366](www.linkedin.com/in/ajay-kumar-arava-918854366*(update with your profile)*
 
 ---
 
